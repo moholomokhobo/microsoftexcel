@@ -6,7 +6,7 @@
 
 
 
-
+![2 1](https://github.com/moholomokhobo/microsoftexcel/assets/113181986/7f03615a-42de-4e29-899b-a5e74e6c10ca)
 
 Insights: 
 Woman Are Likely To Buy More Comapred To Men (35%)
