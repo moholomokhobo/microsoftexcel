@@ -25,10 +25,5 @@
 
 
 
-Insights: 
 
-Woman Are Likely To Buy More Comapred To Men (35%)
-Maharashtra, Karnataka And Uta Pradesh Are The Top 3 States (35%)
-Adult Age Group (30 - 49) It's Max Contribution Is (50%)
-Amazon, Flipkart And Myntra Channels Are Contributing At (80%)
 
