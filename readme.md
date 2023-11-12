@@ -8,13 +8,16 @@
 
 ![2 1](https://github.com/moholomokhobo/microsoftexcel/assets/113181986/7f03615a-42de-4e29-899b-a5e74e6c10ca)
 
+
+
+![1](https://github.com/moholomokhobo/microsoftexcel/assets/113181986/0ebd2dcb-b6d4-42fa-856f-b138448bcdc3)
+
+
+
 Insights: 
+
 Woman Are Likely To Buy More Comapred To Men (35%)
 Maharashtra, Karnataka And Uta Pradesh Are The Top 3 States (35%)
 Adult Age Group (30 - 49) It's Max Contribution Is (50%)
 Amazon, Flipkart And Myntra Channels Are Contributing At (80%)
 
-Conclusion:
-Target Women Customers, With Age Group Of (30 - 49) 
-Living In Maharashtra, Karnataka And Utta Pradesh By Showing
-Ads, Special Offers Or Offers Available On Amazone, Flipkart And Myntra.
